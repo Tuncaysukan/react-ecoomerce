@@ -1,1 +1,1 @@
-Herşey  TBT  için  :=)
+Herşey  TBT  için  
